@@ -17,6 +17,7 @@ Likes:
 - Reading Books
 - cuddle with friends
 - Talk about Cooking,Videogames and art
+- Coffee! <3
 
 Dislikes:
 - Toxic Fandoms
