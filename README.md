@@ -18,6 +18,7 @@ Likes:
 - cuddle with friends
 - Talk about Cooking,Videogames and art
 - Coffee! <3
+- Giving Flowers to anyone, or cakes
 
 Dislikes:
 - Toxic Fandoms
