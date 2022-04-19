@@ -23,6 +23,7 @@ Dislikes:
 - TD/TT ppl
 - Social Media in general (except discord)
 - Any topic involving Racism to Latin-American people
+- Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 
 Normally i Don't like hiding deliberately people or ignore them
 
