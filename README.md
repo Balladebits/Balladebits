@@ -6,6 +6,8 @@ I'm a pseudointrovert but like Joking and cuddling around ppl who likes it
 
 Despite being like that i don't trust ppl so easily,and also aside from being a literal clown sometimes,please don't push my limits if i tell you to stop,okay? 
 
+Please do not copy or inspo my Skins
+
 I roam around the docks or the Cafe and frequently join parties
 
 Minors and aromantic people please DNI
