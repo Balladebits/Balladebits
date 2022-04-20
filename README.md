@@ -31,7 +31,7 @@ Dislikes:
 - Any topic involving Racism to Latin-American people
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Politics
-- JoJo's
+- Any topic involving Alcohol and Drugs
 
 Normally i Don't like hiding deliberately people or ignore them
 
