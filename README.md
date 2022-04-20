@@ -22,6 +22,7 @@ Likes:
 - Coffee! <3
 - Giving Flowers to anyone, or cakes
 - Making a lot of OCs and concepts
+- Sexual Topics
 
 Dislikes:
 - Toxic Fandoms
@@ -29,7 +30,8 @@ Dislikes:
 - Social Media in general (except discord)
 - Any topic involving Racism to Latin-American people
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
-
+- Politics
+- JoJo's
 
 Normally i Don't like hiding deliberately people or ignore them
 
