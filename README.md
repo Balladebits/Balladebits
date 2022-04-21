@@ -2,7 +2,7 @@ You can Call me Ballade sweetie,Nice to meet you
 
 I'm a He/Him
 
-I'm a pseudointrovert but like Joking and cuddling around ppl who likes it
+I'm a pseudointrovert (Potentially asocial) ut like Joking and cuddling around ppl who likes it
 
 Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice You ^^
 
