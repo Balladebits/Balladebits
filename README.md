@@ -34,6 +34,7 @@ Dislikes:
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Politics
 - Any topic involving Alcohol and Drugs
+- Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
 
 Normally i Don't like hiding deliberately people or ignore them
 
