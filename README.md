@@ -4,13 +4,15 @@ I'm a He/Him
 
 I'm a pseudointrovert but like Joking and cuddling around ppl who likes it
 
+Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice You ^^
+
 Despite being like that i don't trust ppl so easily,and also aside from being a literal clown sometimes,please don't push my limits if i tell you to stop,okay? 
 
 Please do not copy or inspo my Skins
 
 I roam around the docks or the Cafe and frequently join parties
 
-Minors and aromantic people please DNI
+Minors and aromantic people please DNI (no,i do not hate Aromantic,it's because i'm a cuddler and i prefer not making them uncomfortable)
 
 I speak Both Spanish and English (Mostly english,but i really love speaking native spanish if you feel like it <3) 
 
