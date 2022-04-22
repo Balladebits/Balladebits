@@ -6,6 +6,8 @@ I'm a pseudointrovert (Potentially asocial) but like Joking and cuddling around 
 
 Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice You ^^
 
+Also, i'm Straight (with bisexual tendencies) and already taken (still can erp tho- since is virtual and fictive and not a real thing)
+
 Despite being like that i don't trust ppl so easily,and also aside from being a literal clown sometimes,please don't push my limits if i tell you to stop,okay? 
 
 Please do not copy or inspo my Skins
