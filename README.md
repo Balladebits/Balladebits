@@ -1,6 +1,6 @@
 You can Call me Ballade sweetie,Nice to meet you
 
-I'm a He/Him
+I'm a He/Him but also a Femboy
 
 I'm a pseudointrovert (Potentially asocial) but like Joking and cuddling around ppl who likes it
 
