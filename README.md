@@ -1,3 +1,5 @@
+English:
+
 You can Call me Ballade sweetie,Nice to meet you
 
 I'm a He/Him but also a Femboy
@@ -56,3 +58,65 @@ Fandoms i Dislike/Hate:
 Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
+
+
+Español:
+
+Puedes llamarme Ballade cariño, un gusto ^^
+
+Soy Hombre y también Femboy
+
+Soy un pseudointrovertido (potencialmente asocial) pero me gusta bromear y abrazar/acurrucarme con personas a las que les gusta.
+
+Sí, lo sé, parezco que siempre estoy AFK pero no, ven y saludame tal vez te note ^^
+
+Además, soy heterosexual (con tendencias bisexuales) y ya estoy en una relación (todavía puedo hacer erp ya que es virtual y ficticio, no real)
+
+A pesar de ser así, no suelo confíar en la gente tan fácilmente, y además de ser un payaso literal a veces, por favor no me rompas la paciencia si te digo que te detengas, ¿de acuerdo?
+
+Por favor, no copies mis Skins
+
+Deambulo por los muelles o el Café y con frecuencia me uno a Parties
+
+Menores y arrománticos por favor NO INTERACTUAR (no, no odio a los arrománticos, es porque soy mimoso y prefiero no incomodarlos)
+
+Hablo español e inglés (español nativo, pero uso mucho inglés de todos modos)
+
+Gustos:
+- Videojuegos en general, en especial Pokemon y Mega Man
+- Leer Libros
+- acurrucarse con amigos
+- Charla sobre Cocina, Videojuegos y arte.
+- ¡Café! <3
+- Dar flores a cualquier persona, o pasteles
+- Hacer muchos OC y conceptos.
+- Temas sexuales
+
+No me gusta:
+- Fandoms tóxicos
+- Gente con TD/TT
+- Redes Sociales en general (excepto discord)
+- Cualquier tema relacionado con el racismo hacia latinoamericanos.
+- Cualquier MOBA en general (League of Legends,Dota,Pokemon Unite,etc.)
+- Política
+- Cualquier tema que involucre Alcohol y Drogas
+- Veganismo (este tema me molesta MUCHO). (Con el vegetarianismo estoy bien)
+
+Fandoms que me gustan/me gustaban:
+- Cookie Run Ovenbreak/Kingdom (Retirado)
+- Mega Man (Clásico/X/ZX)
+- Pokémon (Gen 1 a Gen 5) (No me gustan otras gens debido a lo que pkmn se convirtió durante los años de mediocridad)
+- Kirby
+- Metroid (1 a 5) (Ni idea de Metroid Prime)
+- Castlevania (Retirado)
+- Undertale/Deltarune (Retirado)
+
+Fandoms que no me gustan/odio:
+- K-pop
+- Hazbin Hotel (estoy bien con el Helluva Boss)
+- Anime en general
+- Sonic
+
+Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
+
+Además, si llegaste hasta aquí, no dudes en acercarte <3
