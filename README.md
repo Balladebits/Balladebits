@@ -1,5 +1,6 @@
+---------------
 English:
-
+---------------
 You can Call me Ballade sweetie,Nice to meet you
 
 I'm a He/Him but also a Femboy
@@ -59,8 +60,9 @@ Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
 
-
+------------
 Español:
+------------
 
 Puedes llamarme Ballade cariño, un gusto ^^
 
