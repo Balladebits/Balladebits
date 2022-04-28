@@ -107,7 +107,7 @@ No me gusta:
 Fandoms que me gustan/me gustaban:
 - Cookie Run Ovenbreak/Kingdom (Retirado)
 - Mega Man (Clásico/X/ZX)
-- Pokémon (Gen 1 a Gen 5) (No me gustan otras gens debido a lo que pkmn se convirtió durante los años de mediocridad)
+- Pokémon (Gen 1 a Gen 5) (No me gustan otras generaciones debido a en lo que se convirtió pkmn con su mediocridad)
 - Kirby
 - Metroid (1 a 5) (Ni idea de Metroid Prime)
 - Castlevania (Retirado)
