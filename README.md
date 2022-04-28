@@ -16,7 +16,7 @@ I roam around the docks or the Cafe and frequently join parties
 
 Minors and aromantic people please DNI (no,i do not hate Aromantic,it's because i'm a cuddler and i prefer not making them uncomfortable)
 
-I speak Both Spanish and English (Mostly english,but i really love speaking native spanish if you feel like it <3) 
+I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
 
 Likes:
 - Videogames in general,specially Pokemon and Mega Man
@@ -38,10 +38,21 @@ Dislikes:
 - Any topic involving Alcohol and Drugs
 - Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
 
+Fandoms i like/used to like:
+- Cookie Run Ovenbreak/Kingdom (Formerly)
+- Mega Man (Classic/X/ZX)
+- Pokémon (Gen 1 to Gen 5) (I don't like other gens because of what pkmn became over the years of mediocrity)
+- Kirby
+- Metroid (1 to 5) (little Knowledge of Metroid Prime)
+- Castlevania (Formerly)
+- Undertale/Deltarune (Formerly)
+
+Fandoms i Dislike/Hate:
+- Kpop
+- Hazbin Hotel (i'm ok with helluva boss)
+- Anime in general
+- Sonic
+
 Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
-<!---
-Balladebits/Balladebits is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
