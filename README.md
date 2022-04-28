@@ -55,7 +55,7 @@ Fandoms i Dislike/Hate:
 - Hazbin Hotel (i'm ok with helluva boss)
 - Anime in general
 - Sonic
-
+- Dream SMP (wtf with these people..)
 Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
@@ -118,7 +118,7 @@ Fandoms que no me gustan/odio:
 - Hazbin Hotel (estoy bien con el Helluva Boss)
 - Anime en general
 - Sonic
-
+- Dream SMP (que mierda con esa gente..)
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
 Además, si llegaste hasta aquí, no dudes en acercarte <3
