@@ -56,6 +56,8 @@ Fandoms i Dislike/Hate:
 - Anime in general
 - Sonic
 - Dream SMP (wtf with these people..)
+- JoJo's 
+
 Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
@@ -119,6 +121,8 @@ Fandoms que no me gustan/odio:
 - Anime en general
 - Sonic
 - Dream SMP (que mierda con esa gente..)
+- JoJo's
+
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
 Además, si llegaste hasta aquí, no dudes en acercarte <3
