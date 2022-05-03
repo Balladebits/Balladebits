@@ -66,6 +66,7 @@ Fandoms i Dislike/Hate:
 Not interested:
 - Genshin Impact
 - Supercell Games
+- Steven Universe
 
 Normally i Don't like hiding deliberately people or ignore them
 
@@ -140,7 +141,7 @@ Fandoms que no me gustan/odio:
 No me interesa:
 - Genshin Impact
 - Juegos de Supercell
-
+- Steven Universe
 
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
