@@ -62,6 +62,10 @@ Fandoms i Dislike/Hate:
 - Dream SMP (wtf with these people..)
 - JoJo's (I hate it A LOT)
 
+Not interested:
+- Genshin Impact
+- Supercell Games
+
 Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach <3
@@ -130,6 +134,11 @@ Fandoms que no me gustan/odio:
 - Sonic
 - Dream SMP (Que mierda con esa gente..)
 - JoJo's (Lo odio BASTANTE)
+
+No me interesa:
+- Genshin Impact
+- Juegos de Supercell
+
 
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
