@@ -15,7 +15,9 @@ Despite being like that i don't trust ppl so easily
 
 Please do not copy or inspo my Skins
 
-I roam around the docks or the Cafe and frequently join parties
+I'm NOT an artist but i like drawing sometimes
+
+I roam around the docks or the Cafe (+18 English Server Only) and frequently join parties
 
 Minors and aromantic people please DNI (no,i do not hate Aromantic,it's because i'm a cuddler and i prefer not making them uncomfortable)
 
@@ -80,7 +82,9 @@ A pesar de ser así, no suelo confíar en la gente tan fácilmente
 
 Por favor, no copies mis Skins
 
-Deambulo por los muelles o el Café y con frecuencia me uno a Parties
+NO soy un artista pero me gusta dibujar a veces
+
+Deambulo por los muelles o el Café (Solo el server +18) y con frecuencia me uno a Parties
 
 Menores y arrománticos por favor NO INTERACTUAR (no, no odio a los arrománticos, es porque soy mimoso y prefiero no incomodarlos)
 
