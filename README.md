@@ -42,6 +42,7 @@ Dislikes:
 - Politics
 - Any topic involving Alcohol and Drugs
 - Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
+- Whitewashing/Blackwashing Shitpost (Why...)
 
 Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
@@ -51,6 +52,7 @@ Fandoms i like/used to like:
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Castlevania (Formerly)
 - Undertale/Deltarune (Formerly)
+- Friday Night Funkin (i'm NOT into the english community,just like casual rythm games <3)
 
 Fandoms i Dislike/Hate:
 - Kpop
@@ -58,7 +60,7 @@ Fandoms i Dislike/Hate:
 - Anime in general
 - Sonic
 - Dream SMP (wtf with these people..)
-- JoJo's 
+- JoJo's (I hate it A LOT)
 
 Normally i Don't like hiding deliberately people or ignore them
 
@@ -109,6 +111,7 @@ No me gusta:
 - Política
 - Cualquier tema que involucre Alcohol y Drogas
 - Veganismo (este tema me molesta MUCHO). (Con el vegetarianismo estoy bien)
+- Blackwashing/Whitewashing Shitpost (Por qué...)
 
 Fandoms que me gustan/me gustaban:
 - Cookie Run Ovenbreak/Kingdom (Retirado)
@@ -118,14 +121,15 @@ Fandoms que me gustan/me gustaban:
 - Metroid (1 a 5) (Ni idea de Metroid Prime)
 - Castlevania (Retirado)
 - Undertale/Deltarune (Retirado)
+- Friday Night Funkin (NO estoy en la comunidad inglesa,solo me gustan los juegos de ritmo casuales <3)
 
 Fandoms que no me gustan/odio:
 - K-pop
 - Hazbin Hotel (estoy bien con el Helluva Boss)
 - Anime en general
 - Sonic
-- Dream SMP (que mierda con esa gente..)
-- JoJo's
+- Dream SMP (Que mierda con esa gente..)
+- JoJo's (Lo odio BASTANTE)
 
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
