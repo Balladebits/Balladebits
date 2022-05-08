@@ -54,6 +54,7 @@ Fandoms i like/used to like:
 - Undertale/Deltarune (Formerly)
 - Friday Night Funkin (i'm NOT into the english community,just like casual rythm games <3)
 - Progressbar95
+- Mother (1/2 (Earthbound) 3)
 
 Fandoms i Dislike/Hate:
 - Kpop
@@ -68,6 +69,9 @@ Not interested:
 - Supercell Games
 - Steven Universe
 - Homestuck
+- Danganronpa
+- Persona
+- Bayonetta
 
 Normally i Don't like hiding deliberately people or ignore them
 
@@ -130,6 +134,7 @@ Fandoms que me gustan/me gustaban:
 - Undertale/Deltarune (Retirado)
 - Friday Night Funkin (NO estoy en la comunidad inglesa,solo me gustan los juegos de ritmo casuales <3)
 - Progressbar95
+- Mother (1/2 (Earthbound) 3)
 
 Fandoms que no me gustan/odio:
 - K-pop
@@ -144,6 +149,10 @@ No me interesa:
 - Juegos de Supercell
 - Steven Universe
 - Homestuck
+- Danganronpa
+- Persona
+- Bayonetta
+
 Normalmente no me gusta darle Hide a otros deliberadamente o dar Mute.
 
 Además, si llegaste hasta aquí, no dudes en acercarte <3
