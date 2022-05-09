@@ -11,7 +11,7 @@ Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice 
 
 Also, i'm Straight (with bisexual tendencies) and already taken (still can erp tho- since is virtual and fictive and not a real thing)
 
-Despite being like that i don't trust ppl so easily
+Despite being like that i don't trust ppl so easily (So don't send me friend request without at least chat with m,i'll insta decline)
 
 Please do not copy or inspo my Skins
 
@@ -91,7 +91,7 @@ Sí, lo sé, parezco que siempre estoy AFK pero no, ven y saludame tal vez te no
 
 Además, soy heterosexual (con tendencias bisexuales) y ya estoy en una relación (todavía puedo hacer erp ya que es virtual y ficticio, no real)
 
-A pesar de ser así, no suelo confíar en la gente tan fácilmente
+A pesar de ser así, no suelo confíar en la gente tan fácilmente (Así que no me envíes solicitud de amistad sin al menos hablarme algo, lo Instarechazo)
 
 Por favor, no copies mis Skins
 
