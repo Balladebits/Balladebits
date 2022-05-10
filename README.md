@@ -63,6 +63,7 @@ Fandoms i Dislike/Hate:
 - Sonic
 - Dream SMP (wtf with these people..)
 - JoJo's (I hate it A LOT)
+- CountryHumans/CountryBalls
 
 Not interested:
 - Genshin Impact
@@ -143,6 +144,7 @@ Fandoms que no me gustan/odio:
 - Sonic
 - Dream SMP (Que mierda con esa gente..)
 - JoJo's (Lo odio BASTANTE)
+- CountryHumans/CountryBalls
 
 No me interesa:
 - Genshin Impact
