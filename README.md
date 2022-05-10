@@ -55,6 +55,7 @@ Fandoms i like/used to like:
 - Friday Night Funkin (i'm NOT into the english community,just like casual rythm games <3)
 - Progressbar95
 - Mother (1/2 (Earthbound) 3)
+- Devil May Cry
 
 Fandoms i Dislike/Hate:
 - Kpop
@@ -136,6 +137,7 @@ Fandoms que me gustan/me gustaban:
 - Friday Night Funkin (NO estoy en la comunidad inglesa,solo me gustan los juegos de ritmo casuales <3)
 - Progressbar95
 - Mother (1/2 (Earthbound) 3)
+- Devil May Cry
 
 Fandoms que no me gustan/odio:
 - K-pop
