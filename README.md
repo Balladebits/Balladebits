@@ -44,7 +44,7 @@ Dislikes:
 - Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
 - Whitewashing/Blackwashing Shitpost (Why...)
 
-Ganes/Fandoms i like/used to like:
+Games/Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
 - Mega Man (Classic/X/ZX)
 - Pokémon (Gen 1 to Gen 5) (I don't like other gens because of what pkmn became over the years of mediocrity)
