@@ -11,7 +11,7 @@ Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice 
 
 Also, i'm Straight (with bisexual tendencies) and already taken (still can erp tho- since is virtual and fictive and not a real thing)
 
-Despite being like that i don't trust ppl so easily (So don't send me friend request without at least chat with m,i'll insta decline)
+Despite being like that i don't trust ppl so easily (So don't send me friend request without at least chat with me, i'll insta decline)
 
 Please do not copy or inspo my Skins
 
