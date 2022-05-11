@@ -44,7 +44,7 @@ Dislikes:
 - Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
 - Whitewashing/Blackwashing Shitpost (Why...)
 
-Fandoms i like/used to like:
+Ganes/Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
 - Mega Man (Classic/X/ZX)
 - Pokémon (Gen 1 to Gen 5) (I don't like other gens because of what pkmn became over the years of mediocrity)
@@ -56,8 +56,9 @@ Fandoms i like/used to like:
 - Progressbar95
 - Mother (1/2 (Earthbound) 3)
 - Devil May Cry
+- Watch Dogs
 
-Fandoms i Dislike/Hate:
+Games/Fandoms i Dislike/Hate:
 - Kpop
 - Hazbin Hotel (i'm ok with helluva boss)
 - Anime in general
@@ -126,7 +127,7 @@ No me gusta:
 - Veganismo (este tema me molesta MUCHO). (Con el vegetarianismo estoy bien)
 - Blackwashing/Whitewashing Shitpost (Por qué...)
 
-Fandoms que me gustan/me gustaban:
+Juegos/Fandoms que me gustan:
 - Cookie Run Ovenbreak/Kingdom (Retirado)
 - Mega Man (Clásico/X/ZX)
 - Pokémon (Gen 1 a Gen 5) (No me gustan otras generaciones debido a en lo que se convirtió pkmn con su mediocridad)
@@ -138,8 +139,9 @@ Fandoms que me gustan/me gustaban:
 - Progressbar95
 - Mother (1/2 (Earthbound) 3)
 - Devil May Cry
+- Watch Dogs
 
-Fandoms que no me gustan/odio:
+Juegos/Fandoms que no me gustan/odio:
 - K-pop
 - Hazbin Hotel (estoy bien con el Helluva Boss)
 - Anime en general
