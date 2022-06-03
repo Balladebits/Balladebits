@@ -1,5 +1,5 @@
 ---------------
-English:
+Hi~
 ---------------
 You can Call me Ballade sweetie,Nice to meet you
 
@@ -35,14 +35,15 @@ Likes:
 
 Dislikes:
 - Toxic Fandoms
-- TD/TT ppl (There's no collision and PT is all based on boops or cuddles)
+- TD/TT ppl (There's no collision and PT is all based on boops or cuddles my friend)
 - Social Media in general (except discord)
-- Any topic involving Racism to Latin-American people
+- Any topic involving Racism to Latin-American people (you can make a joke or two,but don't cross the limit)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
-- Politics
-- Any topic involving Alcohol and Drugs
-- Veganism (I get easily triggered by this topic.) (Also not confuse with Vegetarianism,i'm fine with this)
+- Politics 
+- Any topic involving Alcohol and Drugs 
+- Veganism
 - Whitewashing/Blackwashing Shitpost (Why...)
+- Any kind of shipping between characters (I tolerate but don't spam me about it)
 
 Games/Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
@@ -57,6 +58,7 @@ Games/Fandoms i like/used to like:
 - Mother (1/2 (Earthbound) 3)
 - Devil May Cry
 - Watch Dogs
+- SkullGirls (A little knowledge)
 
 Games/Fandoms i Dislike/Hate:
 - Kpop
@@ -76,6 +78,6 @@ Not interested:
 - Persona
 - Bayonetta
 
-Normally i Don't like hiding deliberately people or ignore them
+Normally i Don't like hiding deliberately people or ignore them 
 
 Also,if you come this far,feel free to approach <3
