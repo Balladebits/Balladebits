@@ -3,7 +3,7 @@ Hi~
 ---------------
 You can Call me Ballade sweetie,Nice to meet you
 
-I'm a He/Him but also a Femboy
+I'm a He/Him but also a Femboy (But i don't mind if you use she/her,i'm used to this point haha)
 
 I'm a pseudointrovert (Potentially asocial) but like Joking and cuddling around ppl who likes it
 
