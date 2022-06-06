@@ -3,13 +3,11 @@ Hi~
 ---------------
 You can Call me Ballade sweetie,Nice to meet you
 
-I'm a He/Him but also a Femboy (But i don't mind if you use she/her,i'm used to this point haha)
+I'm a He/Him,Cis and a Roseboy/Femboy (But i don't mind if you use she/her,i'm used to this point haha)
 
 I'm a pseudointrovert (Potentially asocial) but like Joking and cuddling around ppl who likes it
 
 Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice You ^^
-
-Also, i'm Straight (with bisexual tendencies) and already taken (still can erp tho- since is virtual and fictive and not a real thing)
 
 Despite being like that i don't trust ppl so easily (So don't send me friend request without at least chat with me, i'll insta decline)
 
@@ -17,9 +15,14 @@ Please do not copy or inspo my Skins
 
 I'm NOT an artist but i like drawing sometimes
 
-I roam around the docks or the Cafe (+18 English Server Only) and frequently join parties
+I'm mostly like at the docks (+18 English Server Only) and frequently join parties
 
-Minors and aromantic people please DNI (no,i do not hate Aromantic,it's because i'm a cuddler and i prefer not making them uncomfortable)
+DNI if:
+- Minor
+- Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
+- Vegan (I'm Ok with vegetarianism)
+
+Also i don't follow the basic DNI criteria,i only laugh if you're transphobic,homophobic or else,i know not everyone will understand all this LGBT+ stuff (even i don't understand sometimes) 
 
 I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
 
@@ -35,14 +38,13 @@ Likes:
 
 Dislikes:
 - Toxic Fandoms
-- TD/TT ppl (There's no collision and PT is all based on boops or cuddles my friend)
+- TD/TT ppl (Yes i get you don't want to be touched,but your method is not effective and ppl still will like to troll you)
 - Social Media in general (except discord)
-- Any topic involving Racism to Latin-American people (you can make a joke or two,but don't cross the limit)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Politics 
-- Any topic involving Alcohol and Drugs 
-- Veganism
-- Whitewashing/Blackwashing Shitpost (Why...)
+- Any topic involving Alcohol and Drugs
+- Veganism (Did i already said that?)
+- Whitewashing/Blackwashing Shitpost (Why is this even a thing)
 - Any kind of shipping between characters (I tolerate but don't spam me about it)
 
 Games/Fandoms i like/used to like:
