@@ -30,8 +30,8 @@ Likes:
 - Videogames in general,specially Pokemon and Mega Man
 - Reading Books
 - cuddle with friends
-- Talk about Cooking,Videogames and art
-- Coffee! <3
+- Talk about Cooking,Videogames,Art
+- Latte! <3
 - Giving Flowers to anyone, or cakes
 - Making a lot of OCs and concepts
 - Sexual Topics
@@ -39,13 +39,17 @@ Likes:
 Dislikes:
 - Toxic Fandoms
 - TD/TT ppl (Yes i get you don't want to be touched,but your method is not effective and ppl still will like to troll you)
-- Social Media in general (except discord)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
-- Politics 
 - Any topic involving Alcohol and Drugs
 - Veganism (Did i already said that?)
 - Whitewashing/Blackwashing Shitpost (Why is this even a thing)
-- Any kind of shipping between characters (I tolerate but don't spam me about it)
+
+Not Interested:
+- Music (Only hear OSTs Sadly)
+- English YT creators 
+- Politics
+- Shipping
+- Social Media ("I don't give a Shit,because Twitter isn't a real place")
 
 Games/Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
@@ -64,14 +68,13 @@ Games/Fandoms i like/used to like:
 
 Games/Fandoms i Dislike/Hate:
 - Kpop
-- Hazbin Hotel (i'm ok with helluva boss)
 - Anime in general
-- Sonic
+- Sonic (The fandom,i like the games)
 - Dream SMP
 - JoJo's (I hate it A LOT)
 - CountryHumans/CountryBalls
 
-Not interested:
+Games/Fandoms which i'm not interested:
 - Genshin Impact
 - Supercell Games
 - Steven Universe
@@ -79,6 +82,7 @@ Not interested:
 - Danganronpa
 - Persona
 - Bayonetta
+- Hazbin Hotel 
 
 Normally i Don't like hiding deliberately people or ignore them 
 
