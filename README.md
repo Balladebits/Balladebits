@@ -15,7 +15,10 @@ Please do not copy or inspo my Skins
 
 I'm NOT an artist but i like drawing sometimes
 
-I'm mostly like at the docks (+18 English Server Only) and frequently join parties
+I'm In:
+- +18 Server: mostly at the docks
+- Safe Spanish/Portuguese: Cookie Run/FNAF area (DNIUF) 
+- +18 Spanish/Portuguese: Docks & Café 
 
 DNI if:
 - Minor
