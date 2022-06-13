@@ -1,23 +1,23 @@
 ---------------
-Hi~
+Hi.
 ---------------
-You can Call me Ballade sweetie,Nice to meet you
+You can Call me Ballade, Nice to meet you
 
 I'm a He/Him,HeteroFlexible and Roseboy/Femboy (But i don't mind if you use she/her,i'm used to this point haha)
 
-I'm a pseudointrovert (Potentially asocial) but like Joking and cuddling around ppl who likes it
+I'm a pseudointrovert (Potentially asocial) And a Former Cuddler,now a Cranky "Boomer-Minded" man
 
-Yeah i Know,i look like i'm always AFK but no,come and say hi,maybe i'll notice You ^^
+Yeah i Know,i look like i'm always AFK but Come and say hi,maybe i'll answer
 
-Despite being like that i don't trust ppl so easily (So don't send me friend request without at least chat with me, i'll insta decline)
+Despite being like that i don't trust ppl like that (So don't send me friend request without at least chat with me, i'll insta decline)
 
-Please do not copy or inspo my Skins
+Please do not copy or inspo my Skins (I'm not even 
 
-I'm NOT an artist but i like drawing sometimes
+I'm NOT an artist but i like drawing sometimes 
 
 I'm In:
-- +18 Server: mostly at the docks
-- Safe Spanish/Portuguese: Cookie Run/FNAF area (DNIUF) 
+- +18 Server: mostly at the Docks
+- Safe Spanish/Portuguese: Cookie Run/FNAF area (DNI) 
 - +18 Spanish/Portuguese: Docks & Café 
 
 DNI if:
@@ -88,4 +88,4 @@ Games/Fandoms which i'm not interested:
 
 Normally i Don't like hiding deliberately people or ignore them 
 
-Also,if you come this far,feel free to approach <3
+Also,if you come this far,feel free to approach 
