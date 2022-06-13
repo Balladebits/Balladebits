@@ -37,7 +37,6 @@ Likes:
 - Latte! <3
 - Giving Flowers to anyone, or cakes
 - Making a lot of OCs and concepts
-- Sexual Topics
 
 Dislikes:
 - Toxic Fandoms
