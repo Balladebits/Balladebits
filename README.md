@@ -5,13 +5,13 @@ You can Call me Ballade, Nice to meet you
 
 I'm a He/Him,HeteroFlexible and Roseboy/Femboy (But i don't mind if you use she/her,i'm used to this point haha)
 
-I'm a pseudointrovert (Potentially asocial) And a Former Cuddler,now a Cranky "Boomer-Minded" man
+I'm a pseudointrovert (Potentially asocial) And Kinda a Cuddler
 
-Yeah i Know,i look like i'm always AFK but Come and say hi,maybe i'll answer
+Yeah i Know,i look like i'm always AFK but Come and say hi,maybe i'll answer or notice you 
 
-Despite being like that i don't trust ppl like that (So don't send me friend request without at least chat with me, i'll insta decline)
+Despite being like that i don't trust ppl just like that (So don't send me friend request without at least chat with me, i'll insta decline)
 
-Please do not copy or inspo my Skins (I'm not even 
+Please do not copy or inspo my Skins 
 
 I'm NOT an artist but i like drawing sometimes 
 
@@ -32,8 +32,7 @@ I speak Both Spanish and English (Native Spanish,but use a lot of english anyway
 Likes:
 - Videogames in general,specially Pokemon and Mega Man
 - Reading Books
-- cuddle with friends
-- Talk about Cooking,Videogames,Art
+- Cuddle with friends
 - Latte! <3
 - Giving Flowers to anyone, or cakes
 - Making a lot of OCs and concepts
