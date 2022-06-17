@@ -3,7 +3,7 @@ Hi.
 ---------------
 You can Call me Ballade, Nice to meet you
 
-I'm a He/Him,HeteroFlexible and Roseboy/Femboy (But i don't mind if you use she/her,i'm used to this point haha)
+I'm a He/Him,HeteroFlexible and Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
 I'm a pseudointrovert (Potentially asocial) And Kinda a Cuddler
 
