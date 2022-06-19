@@ -65,6 +65,7 @@ Games/Fandoms i like/used to like:
 - Devil May Cry
 - Watch Dogs
 - SkullGirls (A little knowledge)
+- TMNT 
 
 Games/Fandoms i Dislike/Hate:
 - Kpop
