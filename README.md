@@ -37,18 +37,18 @@ Likes:
 - Making a lot of OCs and concepts
 
 Dislikes:
-- Toxic Fandoms
-- TD/TT ppl (Yes i get you don't want to be touched,but your method is not effective and ppl still will like to troll you)
+- Toxic Fandoms (Self Explanatory)
+- TD/TT ppl (Ghost Touch in PT is something Physically impossible,and is unavoidable,ppl will touch you anyway.)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
-- Any topic involving Alcohol and Drugs
+- Any topic involving Alcohol and Drugs (I like the taste of cocktails,but please don't talk about it.)
 - Veganism (Did i already said that?)
-- Whitewashing/Blackwashing Shitpost (Why is this even a thing)
+- Whitewashing/Blackwashing Shitpost (Racism is Racism.)
 - Politics 
 
 Not Interested:
 - Music (Only hear OSTs Sadly)
 - English YT creators 
-- Shipping
+- Shipping 
 - Social Media ("I don't give a Shit,because Twitter isn't a real place")
 
 Games/Fandoms i like/used to like:
