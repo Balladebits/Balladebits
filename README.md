@@ -1,9 +1,9 @@
 ---------------
-Hi.
+Hi,if you're reading this, maybe you're either from Pony Town or Discord
 ---------------
 You can Call me Ballade, Nice to meet you
 
-I'm a He/Him,HeteroFlexible and Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
+I'm a He/Him,Cis and Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
 I'm a pseudointrovert (Potentially asocial) And Kinda a Cuddler
 
@@ -16,8 +16,7 @@ Please do not copy or inspo my Skins
 I'm NOT an artist but i like drawing sometimes 
 
 I'm In:
-- +18 Server: mostly at the Docks
-- Safe Spanish/Portuguese: Cookie Run/FNAF area (DNI) 
+- +18 Server: mostly at the Docks 
 - +18 Spanish/Portuguese: Docks & Café 
 
 DNI if:
@@ -44,25 +43,25 @@ Dislikes:
 - Any topic involving Alcohol and Drugs
 - Veganism (Did i already said that?)
 - Whitewashing/Blackwashing Shitpost (Why is this even a thing)
+- Politics 
 
 Not Interested:
 - Music (Only hear OSTs Sadly)
 - English YT creators 
-- Politics
 - Shipping
 - Social Media ("I don't give a Shit,because Twitter isn't a real place")
 
 Games/Fandoms i like/used to like:
 - Cookie Run Ovenbreak/Kingdom (Formerly)
 - Mega Man (Classic/X/ZX)
-- Pokémon (Gen 1 to Gen 5) (I don't like other gens because of what pkmn became over the years of mediocrity)
+- Pokémon
 - Kirby
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Castlevania (Formerly)
 - Undertale/Deltarune (Formerly)
-- Friday Night Funkin (i'm NOT into the english community,just like casual rythm games <3)
+- Friday Night Funkin (i'm NOT into the english community,but the spanish one)
 - Progressbar95
-- Mother (1/2 (Earthbound) 3)
+- Mother/Earthbound
 - Devil May Cry
 - Watch Dogs
 - SkullGirls (A little knowledge)
@@ -71,9 +70,9 @@ Games/Fandoms i Dislike/Hate:
 - Kpop
 - Anime in general
 - Sonic (The fandom,i like the games)
-- Dream SMP
 - JoJo's (I hate it A LOT)
 - CountryHumans/CountryBalls
+- DSMP
 
 Games/Fandoms which i'm not interested:
 - Genshin Impact
@@ -85,6 +84,6 @@ Games/Fandoms which i'm not interested:
 - Bayonetta
 - Hazbin Hotel 
 
-Normally i Don't like hiding deliberately people or ignore them 
+Normally i Don't like hiding deliberately people or ignore them
 
 Also,if you come this far,feel free to approach 
