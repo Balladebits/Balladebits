@@ -75,10 +75,11 @@ Games/Fandoms i Dislike/Hate:
 - JoJo's (I hate it A LOT)
 - CountryHumans/CountryBalls (Dark memories of the Fandom arise)
 - DSMP 
+- Okegom (I'm Tired of the Spanish Fandom)
 
 Games/Fandoms which i'm not interested:
-- Genshin Impact
-- Supercell Games
+- Genshin Impact 
+- Supercell Games 
 - Steven Universe
 - Homestuck
 - Danganronpa
