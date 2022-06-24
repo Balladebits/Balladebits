@@ -5,11 +5,9 @@ You can Call me Ballade, Nice to meet you
 
 I'm a He/Him,Cis and Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
-I'm a pseudointrovert (Potentially asocial) And Kinda a Cuddler
+I'm An Asocial and Introvert (I only talk to Close friends or at party islands if doing rp,aside from those scenarios i'll hardly respond)
 
-Yeah i Know,i look like i'm always AFK but Come and say hi,maybe i'll answer or notice you 
-
-Despite being like that i don't trust ppl just like that (So don't send me friend request without at least chat with me, i'll insta decline)
+I don't trust ppl Easily (So don't send me friend request without at least chat with me, i'll insta decline)
 
 Please do not copy or inspo my Skins 
 
@@ -24,7 +22,6 @@ DNI if:
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
 - Vegan (I'm Ok with vegetarianism)
 
-
 Also i don't follow the basic DNI criteria,i only laugh if you're transphobic,homophobic or else,i know not everyone will understand all this LGBT+ stuff (even i don't understand sometimes) 
 
 I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
@@ -32,7 +29,7 @@ I speak Both Spanish and English (Native Spanish,but use a lot of english anyway
 Likes:
 - Videogames in general,specially Pokemon and Mega Man
 - Reading Books 
-- Cuddle with friends
+- Cuddle with Close Friends
 - Drink Latte! <3
 - Giving Flowers to anyone, or cakes
 - Making a lot of OCs and concepts
@@ -51,7 +48,7 @@ Dislikes:
 Not Interested:
 - English YT creators 
 - Shipping
-- Social Media ("I don't give a Shit,because Twitter isn't a real place")
+- Social Media ("I don't give a Shit,because Twitter isn't a real place.")
 
 
 Games/Fandoms i like:
