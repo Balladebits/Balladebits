@@ -3,7 +3,7 @@ Hi,if you're reading this, maybe you're either from Pony Town or Discord
 ---------------
 You can Call me Ballade, Nice to meet you
 
-I'm a He/Him,Cis and Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
+I'm a He/Him,Bi and a Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
 I'm An Asocial and Introvert (I only talk to Close friends or at party islands if doing rp,aside from those scenarios i'll hardly respond)
 
