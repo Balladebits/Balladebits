@@ -37,7 +37,7 @@ Likes:
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
-- TD/TT ppl (Ghost Touch in PT is something Physically impossible,and is unavoidable,ppl will touch you anyway.)
+- TD/TT ppl (Ghost Touch in PT is something Physically impossible,and is unavoidable,ppl will touch you anyway.) (Although i Respect that.)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Any topic involving Alcohol and Drugs (I like the taste of cocktails,but please don't talk about it.)
 - Veganism (Did i already said that?)
