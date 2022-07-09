@@ -3,11 +3,11 @@ Hi,if you're reading this, maybe you're either from Pony Town or Discord
 ---------------
 You can Call me Ballade, Nice to meet you
 
-I'm a He/Him,Bi and a Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
+I'm a He/Him,Potentially Bi and a Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
 I'm An Asocial and Introvert (I only talk to Close friends or at party islands if doing rp,aside from those scenarios i'll hardly respond)
 
-I don't trust ppl Easily (So don't send me friend request without at least chat with me, i'll insta decline)
+I don't trust ppl Easily (I Have Serious Trusting Issues so don't send me friend request without at least chat with me, i'll insta decline)
 
 Please do not copy or inspo my Skins 
 
