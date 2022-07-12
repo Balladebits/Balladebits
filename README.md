@@ -28,28 +28,29 @@ I speak Both Spanish and English (Native Spanish,but use a lot of english anyway
 
 Likes:
 - Videogames in general,specially Pokemon and Mega Man
-- Reading Books 
-- Cuddle with Close Friends
+- Cuddle with Close Friends <3
 - Drink Latte! <3
-- Giving Flowers to anyone, or cakes
-- Making a lot of OCs and concepts
-- Hearing Videogames OSTs 
+- Giving Flowers to anyone, or cakes <3
+- Making a lot of OCs and concepts (Although i'm out of ideas)
+- Hearing Videogames OSTs (Mostly when it comes to fandoms i like)
+- Draw Sometimes (Not going to show any art,sorry)
+- Sleep (How Original)
+- Using words like: Dear,Sweetie or Darling
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
 - TD/TT ppl (Ghost Touch in PT is something Physically impossible,and is unavoidable,ppl will touch you anyway.) (Although i Respect that.)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Any topic involving Alcohol and Drugs (I like the taste of cocktails,but please don't talk about it.)
-- Veganism (Did i already said that?)
+- Veganism (don't even approach me)
 - Whitewashing/Blackwashing Drama (Racism is Racism, is both sides fault.)
-- Politics
+- Politics (I don't care)
 - Fake LGBTQ+ (You're responsible of making some ppl have a wrong preconcept and also more ppl to turn homophobic)
+- Shipping between characters/irl ppl (Shippings tend to ruin fandoms or games a Lot) (and with irl ppl please STOP)
 
 Not Interested:
 - English YT creators 
-- Shipping
 - Social Media ("I don't give a Shit,because Twitter isn't a real place.")
-
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
