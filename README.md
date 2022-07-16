@@ -1,7 +1,7 @@
 ---------------
 Hi,if you're reading this, maybe you're either from Pony Town or Discord
 ---------------
-You can Call me Ballade, Nice to meet you
+You can Call me Ballade, Nice to meet you ^^
 
 I'm a He/Him,Potentially Bi and a Roseboy/Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
@@ -18,7 +18,7 @@ I'm In:
 - +18 Spanish/Portuguese: Docks & Café 
 
 DNI if:
-- Minor
+- Minor (Unless friends or +16)
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
 - Vegan (I'm Ok with vegetarianism)
 
