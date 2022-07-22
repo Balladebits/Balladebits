@@ -59,7 +59,6 @@ Games/Fandoms i like:
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Undertale/Deltarune
 - Friday Night Funkin (i'm into the spanish community)
-- Progressbar95
 - Mother/Earthbound
 - Devil May Cry
 - Watch Dogs
@@ -84,7 +83,7 @@ Games/Fandoms which i'm not interested:
 - Persona
 - Bayonetta
 - Hazbin Hotel 
-- Anime in general 
+- Anime in general (Although Idm if you talk about it)
 
 Normally i Don't like hiding deliberately people or ignore them
 
