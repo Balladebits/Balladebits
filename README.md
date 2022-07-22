@@ -18,7 +18,7 @@ I'm In:
 - +18 Spanish/Portuguese: Docks & Café 
 
 DNI if:
-- Minor (Unless friends or +16)
+- Minor (Unless friends or +17)
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
 - Vegan (I'm Ok with vegetarianism)
 
