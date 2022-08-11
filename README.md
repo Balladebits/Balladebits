@@ -1,5 +1,5 @@
 ---------------
-Hi,if you're reading this, maybe you're either from Pony Town or Discord
+Hi,if you're reading this, maybe you're from Discord
 ---------------
 You can Call me Ballade, Nice to meet you ^^
 
@@ -9,13 +9,7 @@ I'm An Asocial and Introvert (I only talk to Close friends or at party islands i
 
 I don't trust ppl Easily (I Have Serious Trusting Issues so don't send me friend request without at least chat with me, i'll insta decline)
 
-Please do not copy or inspo my Skins 
-
-I'm NOT an artist but i like drawing sometimes 
-
-I'm In:
-- +18 Server: mostly at the Docks 
-- +18 Spanish/Portuguese: Docks & Café 
+I'm NOT an artist but i like drawing sometimes
 
 DNI if:
 - Minor (Unless friends or +17)
@@ -39,7 +33,6 @@ Likes:
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
-- TD/TT ppl (Ghost Touch in PT is something Physically impossible,and is unavoidable,ppl will touch you anyway.) (Although i Respect that.)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
 - Any topic involving Alcohol and Drugs (I like the taste of cocktails,but please don't talk about it.)
 - Veganism (don't even approach me)
@@ -54,7 +47,7 @@ Not Interested:
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
-- Pokémon
+- Pokémon (...Sometimes)
 - Kirby
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Undertale/Deltarune
@@ -62,13 +55,13 @@ Games/Fandoms i like:
 - Mother/Earthbound
 - Devil May Cry
 - Watch Dogs
-- SkullGirls (A little knowledge)
-- TMNT (Also a little Knowledge)
+- SkullGirls
+- TMNT (Little Knowledge)
 
 Games/Fandoms i Dislike/Hate:
-- Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom)
+- Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom,even if i play the games)
 - Kpop 
-- Sonic (The fandom,i like the games [...kinda])
+- Sonic (The fandom,i like the games)
 - JoJo's (I hate it A LOT)
 - CountryHumans/CountryBalls (Dark memories of the Fandom arise)
 - DSMP 
