@@ -57,7 +57,7 @@ Games/Fandoms i like:
 - Watch Dogs
 - SkullGirls
 - TMNT (Little Knowledge)
-
+- Cult of the Lamb
 Games/Fandoms i Dislike/Hate:
 - Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom,even if i play the games)
 - Kpop 
