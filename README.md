@@ -5,7 +5,7 @@ You can Call me Ballade, Nice to meet you ^^
 
 I'm a He/Him,Cis and a Femboy (But i don't mind if you use she/her,but don't use they/them please)
 
-I'm An Asocial and Introvert (I only talk to Close friends or at party islands if doing rp,aside from those scenarios i'll hardly respond)
+I'm An Asocial and Introvert (I only talk to Close friends or if doing rp,aside from those scenarios i'll hardly respond)
 
 I don't trust ppl Easily (I Have Serious Trusting Issues so don't send me friend request without at least chat with me, i'll insta decline)
 
@@ -58,6 +58,7 @@ Games/Fandoms i like:
 - SkullGirls
 - TMNT (Little Knowledge)
 - Cult of the Lamb
+
 Games/Fandoms i Dislike/Hate:
 - Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom,even if i play the games)
 - Kpop 
