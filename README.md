@@ -1,44 +1,41 @@
 ---------------
 Hi,if you're reading this, maybe you're from Discord
 ---------------
-You can Call me Ballade, Nice to meet you ^^
+The name is Ballade.
 
-I'm a He/Him,Cis and a Femboy (But i don't mind if you use she/her,but don't use they/them please)
+I'm a He/Him,Cis and a Femboy (But i don't mind if you use she/her,but don't use they/them)
 
-I'm An Asocial and Introvert (I only talk to Close friends or if doing rp,aside from those scenarios i'll hardly respond)
+I'm An Asocial and Introvert (I only talk to Really Close friends,aside from that,posibly i'm not going to respond)
 
-I don't trust ppl Easily (I Have Serious Trusting Issues so don't send me friend request without at least chat with me, i'll insta decline)
+I don't trust Ppl just like that (Trusting Issues, so don't send me friend request without at least chat with me.)
 
 I'm NOT an artist but i like drawing sometimes
 
 DNI if:
 - Minor (Unless friends or +17)
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
-- Vegan (I'm Ok with vegetarianism)
+- Vegan
 
-Also i don't follow the basic DNI criteria,i only laugh if you're transphobic,homophobic or else,i know not everyone will understand all this LGBT+ stuff (even i don't understand sometimes) 
+ don't follow the basic DNI criteria 
 
 I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
 
 Likes:
-- Videogames in general,specially Pokemon and Mega Man
-- Cuddle with Close Friends <3
-- Drink Latte! <3
-- Giving Flowers to anyone, or cakes <3
-- Making a lot of OCs and concepts (Although i'm out of ideas)
+- Videogames in general
+- Talk Close Friends
+- Coffee
+- Giving Flowers 
+- Making a lot of OCs and Concepts
 - Hearing Videogames OSTs (Mostly when it comes to fandoms i like)
-- Draw Sometimes (Not going to show any art,sorry)
-- Sleep (How Original)
+- Draw Sometimes (Not going to show any art.)
 - Using words like: Dear,Sweetie or Darling
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
 - Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
-- Any topic involving Alcohol and Drugs (I like the taste of cocktails,but please don't talk about it.)
+- Any topic involving Alcohol and Drugs
 - Veganism (don't even approach me)
-- Whitewashing/Blackwashing Drama (Racism is Racism, is both sides fault.)
-- Politics (I don't care)
-- Fake LGBTQ+ (You're responsible of making some ppl have a wrong preconcept and also more ppl to turn homophobic)
+- Politics (I don't care.)
 - Shipping between characters/irl ppl (Shippings tend to ruin fandoms or games a Lot) (and with irl ppl please STOP)
 
 Not Interested:
@@ -79,6 +76,4 @@ Games/Fandoms which i'm not interested:
 - Hazbin Hotel 
 - Anime in general (Although Idm if you talk about it)
 
-Normally i Don't like hiding deliberately people or ignore them
-
-Also,if you come this far,feel free to approach 
+That's it,now go away.
