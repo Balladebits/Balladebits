@@ -48,7 +48,6 @@ Games/Fandoms i like:
 - Kirby
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Undertale/Deltarune
-- Friday Night Funkin (i'm into the spanish community)
 - Mother/Earthbound
 - Devil May Cry
 - Watch Dogs
