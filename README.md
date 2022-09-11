@@ -16,7 +16,7 @@ DNI if:
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
 - Vegan
 
- don't follow the basic DNI criteria 
+I Don't follow the basic DNI criteria 
 
 I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
 
