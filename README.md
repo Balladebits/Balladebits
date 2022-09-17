@@ -15,7 +15,7 @@ DNI if:
 - Minor (Unless friends or +17)
 - Aromantic (Don't hate them but as a cuddler i don't want to make them uncomfy)
 - Vegan
-- Anger Issues (Idk how to deal with it,so avoid me)
+- Anger Issues (Sorry but,Avoid me)
 
 I Don't follow the basic DNI criteria 
 
