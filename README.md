@@ -23,10 +23,10 @@ I speak Both Spanish and English (Native Spanish,but use a lot of english anyway
 
 Likes:
 - Videogames in general
-- Talk Close Friends
+- Talk with Close Friends
 - Coffee
 - Giving Flowers 
-- Making a lot of OCs and Concepts
+- Make a lot of OCs and Concepts
 - Hearing Videogames OSTs (Mostly when it comes to fandoms i like)
 - Draw Sometimes (Not going to show any art.)
 - Using words like: Dear,Sweetie or Darling
@@ -37,7 +37,7 @@ Dislikes:
 - Any topic involving Alcohol and Drugs
 - Veganism (don't even approach me)
 - Politics (I don't care.)
-- Shipping between characters/irl ppl (Shippings tend to ruin fandoms or games a Lot) (and with irl ppl please STOP)
+- Shipping in general
 
 Not Interested:
 - English YT creators 
@@ -55,6 +55,7 @@ Games/Fandoms i like:
 - SkullGirls
 - TMNT (Little Knowledge)
 - Cult of the Lamb
+- Sky
 
 Games/Fandoms i Dislike/Hate:
 - Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom,even if i play the games)
@@ -75,5 +76,6 @@ Games/Fandoms which i'm not interested:
 - Bayonetta
 - Hazbin Hotel 
 - Anime in general (Although Idm if you talk about it)
+- Splatoon
 
 That's it,now go away.
