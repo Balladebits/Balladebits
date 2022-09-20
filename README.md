@@ -3,7 +3,7 @@ Hi,if you're reading this, maybe you're from Discord
 ---------------
 The name is Ballade.
 
-I'm a He/Him,Cis and a Femboy (But i don't mind if you use she/her,but don't use they/them)
+I'm a He/Him,Straight Femboy (But i don't mind if you use she/her,but don't use they/them)
 
 I'm An Asocial and Introvert (I only talk to Really Close friends,aside from that,posibly i'm not going to respond)
 
