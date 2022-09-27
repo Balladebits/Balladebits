@@ -25,7 +25,7 @@ Likes:
 - Videogames in general
 - Talk with Close Friends
 - Coffee
-- Giving Flowers 
+- Milk,Cheese,Yogurt and related
 - Make a lot of OCs and Concepts
 - Hearing Videogames OSTs (Mostly when it comes to fandoms i like)
 - Draw Sometimes (Not going to show any art.)
