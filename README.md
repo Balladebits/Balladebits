@@ -1,7 +1,6 @@
 ---------------
-Hi,if you're reading this, maybe you're from Discord
+If you're reading this, maybe you're from Discord
 ---------------
-The name is Ballade.
 
 I'm a He/Him,Straight Femboy (But i don't mind if you use she/her,but don't use they/them)
 
