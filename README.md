@@ -18,7 +18,7 @@ DNI if:
 
 I Don't follow the basic DNI criteria 
 
-I speak Both Spanish and English (Native Spanish,but use a lot of english anyway) 
+I speak Both Spanish and English (Spanish is my 1st Language,but i prefer speaking in English more often) 
 
 Likes:
 - Videogames in general
