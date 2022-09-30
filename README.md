@@ -29,6 +29,7 @@ Likes:
 - Hearing Videogames OSTs (Mostly when it comes to fandoms i like)
 - Draw Sometimes (Not going to show any art.)
 - Using words like: Dear,Sweetie or Darling
+- Flirting for fun with the ones i know the most
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
