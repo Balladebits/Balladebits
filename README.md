@@ -45,7 +45,6 @@ Not Interested:
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
-- Pokémon (...Sometimes)
 - Kirby
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Undertale/Deltarune
@@ -65,6 +64,7 @@ Games/Fandoms i Dislike/Hate:
 - CountryHumans/CountryBalls (Dark memories of the Fandom arise)
 - DSMP 
 - Okegom (I'm Tired of the Spanish Fandom)
+- Pokemon (Formerly in the fandom,i'm not interested anymore.)
 
 Games/Fandoms which i'm not interested:
 - Genshin Impact 
@@ -78,4 +78,4 @@ Games/Fandoms which i'm not interested:
 - Anime in general (Although Idm if you talk about it)
 - Splatoon
 
-That's it,now go away.
+And that's it.
