@@ -6,7 +6,7 @@ I'm a He/Him,Straight Femboy
 
 I'm An Asocial and Introvert (I only talk to Really Close friends,aside from that,posibly i'm not going to respond)
 
-I don't trust Ppl just like that Don't send me friend request without at least chat with me.)
+I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
 Minors,Pkmn Fans and Vegans DNI
 
@@ -17,11 +17,10 @@ Likes:
 - Talk with Close Friends
 - Draw Sometimes (Not going to show any art.)
 - Using words like: Dear,Sweetie or Darling
-- Flirting for fun with the ones i know the most
 
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
-- Any MOBA in general (League of Legends,Dota,Pokemon Unite,etc.)
+- Any MOBA games in general 
 - Any topic involving Alcohol and Drugs
 - Veganism (don't even approach me)
 - Politics (I don't care.)
