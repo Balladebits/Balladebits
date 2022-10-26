@@ -25,6 +25,7 @@ Dislikes:
 - Veganism (don't even approach me)
 - Politics (I don't care.)
 - Shipping in general
+- Femme Fatale archetype (Not my type of girl,thanks.)
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
