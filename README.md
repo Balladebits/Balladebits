@@ -8,7 +8,11 @@ I'm An Asocial and Introvert (I only talk to Really Close friends,aside from tha
 
 I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
-Minors,Pkmn Fans and Vegans DNI
+DNI if
+- Minors
+- Pokemon Fans
+- Femboy Stans (Y'all Creepy)
+- Vegan
 
 I speak Both Spanish and English
 
@@ -26,6 +30,7 @@ Dislikes:
 - Politics (I don't care.)
 - Shipping in general
 - Femme Fatale archetype (Not my type of girl,thanks.)
+- Femboy Stans (Sexualizing a form of expression is Bad)
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
@@ -33,12 +38,12 @@ Games/Fandoms i like:
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Mother/Earthbound
 - SkullGirls
-- Sonic (Borderline Dislike)
+- Sonic
 
 Games/Fandoms i Dislike/Hate:
-- Cookie Run Ovenbreak/Kingdom (Thanks,i hate the fandom,even if i play the games)
-- Kpop 
-- JoJo's
+- Cookie Run Ovenbreak/Kingdom (One of the worst fandoms)
+- KPop 
+- JoJo's 
 - CountryHumans/CountryBalls (Dark memories of the Fandom arise)
 - DSMP 
 - Okegom (I'm Tired of the Spanish Fandom)
