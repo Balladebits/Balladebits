@@ -8,11 +8,13 @@ I'm An Asocial and Introvert (I only talk to Really Close friends,aside from tha
 
 I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
-DNI if
-- Minor
+DNI:
+- Minors
 - Pokemon Fans
 - Femboy Stans (Y'all Creepy)
-- Vegan
+- Vegans
+- JoJo Fans
+- Cookie Run Fans
 
 I speak Both Spanish and English
 
