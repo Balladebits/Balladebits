@@ -32,7 +32,8 @@ Dislikes:
 - Politics (I don't care.)
 - Shipping in general
 - Femme Fatale archetype (Not my type of girl,thanks.)
-- Femboy Stans (Sexualizing a form of expression is Bad)
+- Femboy Stans (Sexualizing a form of expression is Horrible)
+- Any kind of Drama
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
