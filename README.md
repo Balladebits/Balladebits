@@ -18,7 +18,7 @@ DNI:
 
 I speak Both Spanish and English
 
-Note that i'm an Anti-shipper,i don't really care and not interested in anything related to it,but i strongly discourage harrasments, so if you enjoy a specific shipp,it's up to you
+Note that i'm an Anti-shipper,i don't really care and not interested in anything related to it,but i strongly discourage harrasments, so if you enjoy a specific shipp,it's up to you (and yes,Reality ≠ Fiction ik.)
 
 Likes:
 - Videogames in general
