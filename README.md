@@ -18,8 +18,8 @@ DNI:
 
 I speak Both Spanish and English
 
-Note that i'm an Anti-shipper,i don't really care and not interested in anything related to it,but i strongly discourage harrasments, so if you enjoy a specific shipp,it's up to you (and yes,Reality ≠ Fiction ik.)
-(Also if a Relationship is canonical or confirmed,then i'm fine)
+I'm an Anti-shipper
+
 Likes:
 - Videogames in general
 - Talk with Close Friends
@@ -32,7 +32,7 @@ Dislikes:
 - Any topic involving Alcohol and Drugs
 - Veganism (don't even approach me)
 - Politics (I don't care.)
-- Shipping in general (as stated before)
+- Shipping in general
 - Femme Fatale archetype (Not my type of girl,thanks.)
 - Femboy Stans (Sexualizing a form of expression is Horrible)
 - Any kind of Drama
