@@ -15,10 +15,12 @@ DNI:
 - Vegans
 - JoJo Fans
 - Cookie Run Fans
+- Anger Issues
+- Anti-Antis 
 
-I speak Both Spanish and English
+Spanish and English
 
-I'm an Anti-shipper
+Anti-shipper
 
 Likes:
 - Videogames in general
