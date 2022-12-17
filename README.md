@@ -45,6 +45,7 @@ Games/Fandoms i like:
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
 - Mother/Earthbound
 - SkullGirls
+- Age of Empires (II)
 
 Games/Fandoms i Dislike/Hate:
 - Cookie Run Ovenbreak/Kingdom (One of the worst fandoms)
