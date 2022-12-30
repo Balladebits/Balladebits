@@ -31,19 +31,18 @@ Likes:
 Dislikes:
 - Toxic Fandoms (Obvious Reasons)
 - Any MOBA games in general 
-- Any topic involving Alcohol and Drugs
+- Any topic involving Alcohol and Drugs (Specially Weed)
 - Veganism (don't even approach me)
 - Politics (I don't care.)
-- Shipping in general
-- Femme Fatale archetype (Not my type of girl,thanks.)
-- Femboy Stans (Sexualizing a form of expression is Horrible)
-- Any kind of Drama
+- Any kind of Shipping in general
+- Femboy Stans (Sexualizing feminine expressivity is Horrible)
+- Any kind of Drama 
+- The term "Trap"
 
 Games/Fandoms i like:
 - Mega Man (Classic/X/ZX)
 - Kirby
 - Metroid (1 to 5) (little Knowledge of Metroid Prime)
-- Mother/Earthbound
 - SkullGirls
 - Age of Empires (II)
 
