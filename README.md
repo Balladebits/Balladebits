@@ -8,12 +8,12 @@ I'm An Asocial and Introvert (I only talk to Really Close friends,aside from tha
 
 I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
-DNI:
+DNI list:
 - Minors
 - Pokemon Fans
 - Femboy Stans (Y'all Creepy)
 - Vegans
-- JoJo Fans
+- JJBA Fans
 - Cookie Run Fans
 - Anger Issues
 - Anti-Antis 
@@ -47,13 +47,12 @@ Games/Fandoms i like:
 - Age of Empires (II)
 
 Games/Fandoms i Dislike/Hate:
-- Cookie Run Ovenbreak/Kingdom (One of the worst fandoms)
+- Cookie Run Ovenbreak/Kingdom (One of the worst)
 - KPop 
-- JoJo's 
-- CountryHumans/CountryBalls (Dark memories of the Fandom arise)
+- JJBA 
 - DSMP 
 - Okegom (I'm Tired of the Spanish Fandom)
-- Pokemon (Formerly in the fandom,i'm not interested anymore.)
+- Pokemon (I'm not returning to that fluffed up place.)
 
 Games/Fandoms which i'm not interested:
 - Genshin Impact 
