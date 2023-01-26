@@ -2,7 +2,7 @@
 Hello whoever reads this
 ---------------
 
-I'm a He/Him,Straight Femboy
+I'm a He/Him,Aromantic Femboy
 
 I'm An Asocial and Introvert (I only talk to Really Close friends,aside from that,posibly i'm not going to respond)
 
