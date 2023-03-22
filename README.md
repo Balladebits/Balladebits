@@ -2,9 +2,9 @@
 Hello whoever reads this
 ---------------
 
-I'm a He/Him,Aromantic Femboy
+I'm a He/Him
 
-I'm An Asocial and Introvert (I only talk to Really Close friends,aside from that,posibly i'm not going to respond)
+I'm an Introvert sheepy
 
 I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
