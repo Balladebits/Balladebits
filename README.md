@@ -1,10 +1,9 @@
 ---------------
 Hello whoever reads this
 ---------------
+He/Him
 
-I'm a He/Him
-
-I'm an Introvert sheepy
+Introvert sheepy
 
 I hardly trust Ppl,Don't send me friend requests without at least chat with me.
 
