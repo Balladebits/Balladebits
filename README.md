@@ -1,11 +1,11 @@
 ---------------
 Hello whoever reads this
 ---------------
-She/Her ⚧️
+She/Her (⚧️ Proud Transgirl)
 
 Introvert sheepy
 
-I hardly trust Ppl,Don't send me friend requests without at least chat with me.
+I don't trust People often,Don't send me friend requests without at least chat with me.
 
 Minors DNI
 
@@ -20,13 +20,10 @@ Likes:
 - Using words like: Dear,Sweetie or Darling
 
 Dislikes:
-- Toxic Fandoms (Obvious Reasons)
-- Any MOBA games in general 
-- Any topic involving Alcohol and Drugs (Specially Weed)
-- Veganism (don't even approach me)
-- Politics (I don't care.)
-- Any kind of Shipping in general
-- Femboy Stans (Sexualizing feminine expressivity is Horrible)
-- Any kind of Drama 
+- Conflict
+- Toxic Fandoms (Obvious Reasons) 
+- Veganism (Please DON'T)
+- Character and Irl Shipping in general
+- Femboy Stans (Sexualizing feminine expressivity is Horrible) 
 - The term "Trap"
 
